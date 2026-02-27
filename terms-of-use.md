@@ -142,4 +142,4 @@ These Terms shall be governed by and interpreted in accordance with the applicab
 
 If you have any questions about these Terms, please contact:
 
-📧 **[support@astan.com](mailto:support@astan.com)**
+📧 **[contact.astan@gmail.com](mailto:contact.astan@gmail.com)**
