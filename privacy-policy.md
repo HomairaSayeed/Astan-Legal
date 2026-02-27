@@ -142,6 +142,6 @@ Continued use of Astan after updates means you accept the revised policy.
 
 If you have any questions about this Privacy Policy or your data, please contact:
 
-📧 **[support@astan.com](mailto:support@astan.com)**
+📧 **[contact.astan@gmail.com](mailto:contact.astan@gmail.com)**
 
 ---
